@@ -1,1 +1,0 @@
-# Thowyba-mekawy
